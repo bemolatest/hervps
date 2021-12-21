@@ -27,13 +27,6 @@
 Rexxar does not own these codes and is only a publisher.
 
 
-Contact us : 
-
-	Website : rexxar.ir
-	Telegram : rexxar_ir
-	Instagram : rexxar.ir
-
-
 
 
 <div dir="rtl">
@@ -69,15 +62,6 @@ Contact us :
 - پایان ، لذت ببرید .
 
 
-## رکسار را در شبکه های مجازی دنبال کنید :
-
-
-	
-	وب سایت رسمی رکسار  : Rexxar.ir
-	کانال تلگرام رسمی رکسار : Rexxar_ir
-	اینستاگرام رکسار : rexxar.ir
-	
-	
 </div>
 
 
